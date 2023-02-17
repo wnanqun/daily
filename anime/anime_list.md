@@ -85,7 +85,7 @@ new game
 加奈日记  --13--ok   还是有一点东西不是很喜欢的--比较适合孩子看
 校园理想乡 学美向前冲！ --看完了--可爱的萝莉-校园
 夏日重现
-间谍过家家2
+间谍过家家2 --ok
 异世界舅舅
 do it yourself
 东京暗鸦  --24--ok  一般-伪后宫+血统+死亡亚厦洗 +前后嘲笑了普通角色
@@ -94,12 +94,14 @@ do it yourself
 枪械少女--10+ova--ok  --枪娘-普通类型
 机械女仆ova--3--ok    --死宅幻想-普通类型
 Happy sugar life --11/12
-亚人酱有话说 --12+ova  --ok --不错
-刀语        --12
+亚人酱有话说 --12+ova  --ok --
+不错
+刀语        --12   一集近50分钟
 魔力女管家   --两季+2特别篇
 女子落语     13+oad1
 安达与岛村   
-
+突击莉莉   ova好像很好看
+札月家的杏子妹妹
 #### 网站
 https://bangumi.moe/search/index  --有人在上面上传番剧 --可不可看还不知道--据说可以看新番，都是1080p的高清资源--好像还真的可以
 
@@ -109,13 +111,18 @@ https://www.yiduji.com/ -- 异度姬
 https://www.yiduji.com/audio/giegie.mp3   --一段话
 
 布米米-可以看碧蓝航线BD-6集
+bumimi.vip
 233动漫--可以看碧蓝航线BD 人马少女BD-8集
 
 NT动漫
 http://www.ntyou.cc/
+新网址:ntdm8.com
 
 加奈日记:
 https://eacg.net/voddetails-2706.html
 
+https://www.hifast.cn/sites/3346.html  一个导航网站-包了很多
+
+https://acg.rip/     似乎可以下载各种视频 种子
 
 
