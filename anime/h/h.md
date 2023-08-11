@@ -1,16 +1,14 @@
 ##### 
 
 https://pan.baidu.com/s/
-magnet:?xt=urn:btih:351299FD8BD2FFAB778CAC7F25A7E2490415ECA3      --某人的合集
-
+magnet:?xt=urn:btih:351299FD8BD2FFAB778CAC7F25A7E2490415ECA3      --安斋拉拉的合集
 
 https://pan.baidu.com/s/1PxMTsafnbo93Nf6KemKxvw       --夜羊社的【PC/GAL】幼すぎる家庭教師
-
+#####  夜羊社的游戏:
+wafuwafu.com/?p=1651  
 
 #####  
 https://hitomi.la/doujinshi/%E5%AF%9D%E5%8F%96%E3%82%89%E3%82%8C%E5%B0%91%E5%A5%B3%E3%81%A8%E6%94%BE%E8%AA%B2%E5%BE%8C%E3%81%AE%E4%BD%93%E8%82%B2%E5%80%89%E5%BA%AB-%E6%97%A5%E6%9C%AC%E8%AA%9E-157928-909171.html#1
-#####  夜羊社:
-wafuwafu.com/?p=1651  
 #####
 手办的网站: 暂时没有对应能搜的关键词 
 http://www.exhobby.net/search
@@ -33,10 +31,6 @@ https://pixiv.kanata.ml
 https://pixivic.com/?VNK=3a0faf5e
 https://pixiv.pics/
 
-
-
-
-
 ##### 
 https://pixiv.re/69174797.jpg
 https://gelbooru.com/index.php?page=post&s=view&id=4278135
@@ -49,7 +43,7 @@ https://pixiv.re/22386373.jpg
 
 
 
-h网站:
+h网站:需要vpn
 http://www.chinabianhu.com/eeca/cv1npf43.html
 
 个人库的那种
@@ -66,8 +60,6 @@ https://www.galmoe.com/
 
 番:
 love×holic顺便提一嘴还有mama×holic是搞三个女主的妈妈
-
-
 
 
 梯子系列:
