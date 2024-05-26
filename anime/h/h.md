@@ -33,6 +33,7 @@ https://pixiv.pics/
 https://pixiv.js.org
 https://moeyy.cn/pixiv/
 
+https://pixivel.moe/    之前被举报下架了很多图
 
 
 ##### 
