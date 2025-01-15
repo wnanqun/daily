@@ -35,6 +35,8 @@ https://moeyy.cn/pixiv/
 
 https://pixivel.moe/    之前被举报下架了很多图
 
+https://kemono.su/fanbox/user/14409210/post/7880326   似乎可以拿fanbox的图?
+
 
 ##### 
 https://pixiv.re/69174797.jpg
